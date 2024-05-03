@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: doduccanh2k4@gmail.com
 - 😄 Pronouns: Always smile and optimistic
-- ⚡ Fun fact: Believe yourself
+- ⚡ Fun fact: ...
 
 <!---
 iAmKo0L/iAmKo0L is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
