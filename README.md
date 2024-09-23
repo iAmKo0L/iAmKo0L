@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @iAmKo0L
-- 👀 I’m interested in ...
+- 👀 I’m interested in eating and playing
 - 🌱 I’m currently learning Information Technology
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: doduccanh2k4@gmail.com
